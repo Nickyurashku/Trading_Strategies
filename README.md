@@ -1,1 +1,1 @@
-# Trading_Strategies
+# Trading Strategies vs Traditional Passive Investing
